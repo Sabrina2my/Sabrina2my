@@ -1,4 +1,5 @@
-## ***Seja bem-vindo ao meu perfil*** 🐈‍⬛
+## ***Seja bem-vindo ao meu perfil*** 🐱
+
 
 ### Sou aluna da plataforma _Alura_ e aqui você verá meus projetos!
 
