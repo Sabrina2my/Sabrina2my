@@ -7,7 +7,7 @@
 
 - 00001108362059sp@al.educacao.sp.gov.br
 
-  ![](https://media.tenor.com/nZJmmGvsUq8AAAAj/sumikko-gurashi.gif)
+  ![](https://media0.giphy.com/media/b6roFb3iFdoPu/200.gif)
 
 <!--
 **Sabrina2my/Sabrina2my** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
